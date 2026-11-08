@@ -1,0 +1,1 @@
+# minsk-2-days
